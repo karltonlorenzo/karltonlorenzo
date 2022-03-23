@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @karltonlorenzo
 - 👀 I’m interested in making aesthetically pleasing but functional applications that help bring more fun into the world
-- 🌱 I’m currently learning too many things. My focus is UX Design tho.
+- 🌱 I’m currently learning too many things. My focus is UX Design at this current conjucture.
 - 💞️ I’m looking to collaborate on nothing at the moment
 - 📫 How to reach me - karltonpeterson10@gmail.com
 
